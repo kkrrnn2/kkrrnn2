@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **karanpal1605@gmail.com** For Collaboration/Project or Any
 - 🌱 **I’m currently learning:** Data Analytics
 - 👯 **I’m looking to New job Opportunity:**
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** karanpal1605@gmail.com
+- 📫 **My Portfolio:** (https://portfolio-omega-bice-32.vercel.app/)
 - 😄 **Pronouns:** Karan
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 - 
